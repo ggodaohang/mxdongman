@@ -1,7 +1,7 @@
 <h2>mx动漫官网，专注在线动漫的樱花动漫备用网站|网页版入口|下载</h2>
 <p>MX动漫是一个以动漫资源为核心内容的在线平台，旨在为用户提供全面的动漫观看和互动服务。网站不仅提供海量的正版动漫资源，还设有漫画阅读区、论坛讨论区以及同人创作区等多元化功能模块，使用户可以自由选择感兴趣的内容进行浏览和互动。网站还注重用户体验，通过智能推荐系统为用户推荐感兴趣的动漫作品，并支持多种播放格式和清晰度选择，确保用户能够获得最佳的观看效果。</p>
-<p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5957.html" target="_blank"><strong>mx动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://mxdmtv.2rdh.com/" target="_blank"><strong>mx动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
